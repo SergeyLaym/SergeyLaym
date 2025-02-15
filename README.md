@@ -5,6 +5,7 @@
 - 📫 How to reach me: reach me may on email sergey_laym@vk.com or telegram (soon)
 - 😄 Pronouns: Sergey laym
 - ⚡ Fun fact: soon
+- 📂My chanels: https://t.me/addlist/c8R5DdX8b_00YWUy
 
 <!---
 SergeyLaym/SergeyLaym is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
